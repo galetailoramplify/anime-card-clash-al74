@@ -1,4 +1,4 @@
-#  
+#  baddies Scripts custom offers the most advanced baddies Script, with undetectable and auto-collect. Perfect for dominating any match.
 
 
 
